@@ -29,6 +29,7 @@ Films I especially loved are marked with an astrisk (*).
 19. [Kung Fu Hustle](https://letterboxd.com/film/kung-fu-hustle/) (2004), by Stephen Chow*
 20. [Spider-Man: No Way Home](https://letterboxd.com/film/spider-man-no-way-home/) (2021), by Jon Watts
 21. [Spider-Man: Brand New Day](https://letterboxd.com/film/spider-man-brand-new-day/) (2026), by Destin Daniel Cretton
+22. [The Secret World of Arrietty](https://letterboxd.com/film/the-secret-world-of-arrietty/) (2010), by Hiromasa Yonebayashi
 
 ### 2025
 1. [Gladiator](https://letterboxd.com/film/gladiator-2000/) (2000), by Ridley Scott*
