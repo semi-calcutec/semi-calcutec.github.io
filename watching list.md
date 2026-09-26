@@ -25,12 +25,14 @@ Films I especially loved are marked with an astrisk (*).
 15. [Inception](https://letterboxd.com/film/inception/) (2010), by Christopher Nolan
 16. [Obsession](https://letterboxd.com/film/obsession-2025/) (2025), by Curry Barker*
 17. [Perfect Days](https://letterboxd.com/film/perfect-days-2023/) (2023), by Wim Wenders
-18. [The Perks of Being a Wallflower](https://letterboxd.com/film/the-perks-of-being-a-wallflower/) (2012), by Stephen Chbosky
-19. [Kung Fu Hustle](https://letterboxd.com/film/kung-fu-hustle/) (2004), by Stephen Chow*
-20. [Spider-Man: No Way Home](https://letterboxd.com/film/spider-man-no-way-home/) (2021), by Jon Watts
-21. [Spider-Man: Brand New Day](https://letterboxd.com/film/spider-man-brand-new-day/) (2026), by Destin Daniel Cretton
-22. [The Secret World of Arrietty](https://letterboxd.com/film/the-secret-world-of-arrietty/) (2010), by Hiromasa Yonebayashi
-23. [Shaun of the Dead](https://letterboxd.com/film/shaun-of-the-dead/) (2004), Edgar Wright
+18. [Good Will Hunting](https://letterboxd.com/film/good-will-hunting/) (1997), by Gus Van Sant
+19. [The Perks of Being a Wallflower](https://letterboxd.com/film/the-perks-of-being-a-wallflower/) (2012), by Stephen Chbosky
+20. [Kung Fu Hustle](https://letterboxd.com/film/kung-fu-hustle/) (2004), by Stephen Chow*
+21. [Spider-Man: No Way Home](https://letterboxd.com/film/spider-man-no-way-home/) (2021), by Jon Watts
+22. [Spider-Man: Brand New Day](https://letterboxd.com/film/spider-man-brand-new-day/) (2026), by Destin Daniel Cretton
+23. [The Secret World of Arrietty](https://letterboxd.com/film/the-secret-world-of-arrietty/) (2010), by Hiromasa Yonebayashi
+24. [Shaun of the Dead](https://letterboxd.com/film/shaun-of-the-dead/) (2004), Edgar Wright
+25. [The Curious Case of Benjamin Button](mary poppins 2026 simplebooth) (2008), by David Fincher
 
 ### 2025
 1. [Gladiator](https://letterboxd.com/film/gladiator-2000/) (2000), by Ridley Scott*
