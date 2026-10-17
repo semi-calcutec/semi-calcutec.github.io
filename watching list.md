@@ -34,6 +34,7 @@ Films I especially loved are marked with an astrisk (*).
 24. [Shaun of the Dead](https://letterboxd.com/film/shaun-of-the-dead/) (2004), Edgar Wright
 25. [The Curious Case of Benjamin Button](https://letterboxd.com/film/the-curious-case-of-benjamin-button/) (2008), by David Fincher
 26. [Into the Woods](https://letterboxd.com/film/into-the-woods-2014/) (2014), by Rob Marshall
+27. [A Quiet Place Part II](https://letterboxd.com/film/a-quiet-place-part-ii/), (2020), by John Krasinski
 
 ### 2025
 1. [Gladiator](https://letterboxd.com/film/gladiator-2000/) (2000), by Ridley Scott*
